@@ -1,1 +1,1 @@
-Why would anyone frost a cake with their butt? I am going blind.
+Barkeep, make sure you get the sherriff; not the marshall.
